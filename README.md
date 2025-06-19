@@ -5,3 +5,6 @@
 
 
 # Akhir Februari 2025
+
+# Akhir June 2025
+![image](https://github.com/user-attachments/assets/4912d22d-3377-4ea9-bc81-411219259163)
