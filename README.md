@@ -8,3 +8,6 @@
 
 # Akhir June 2025
 ![image](https://github.com/user-attachments/assets/4912d22d-3377-4ea9-bc81-411219259163)
+
+# Juli 2025
+![image](https://github.com/user-attachments/assets/97747d58-8282-47b0-b3ea-7c11a64f831e)
