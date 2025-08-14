@@ -11,3 +11,6 @@
 
 # Juli 2025
 ![image](https://github.com/user-attachments/assets/97747d58-8282-47b0-b3ea-7c11a64f831e)
+
+# Agustus 2025
+<img width="834" height="561" alt="image" src="https://github.com/user-attachments/assets/9fcc4534-bd93-4ca1-8037-4cc3345a0078" />
