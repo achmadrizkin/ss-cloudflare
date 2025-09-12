@@ -14,3 +14,7 @@
 
 # Agustus 2025
 <img width="834" height="561" alt="image" src="https://github.com/user-attachments/assets/9fcc4534-bd93-4ca1-8037-4cc3345a0078" />
+
+# September 2025
+<img width="1477" height="1240" alt="image" src="https://github.com/user-attachments/assets/0d9c95b2-66ad-45a4-970e-d458bac8aa1b" />
+<img width="1458" height="1252" alt="image" src="https://github.com/user-attachments/assets/e137046c-273a-4ac3-a221-9f21a92603a9" />
