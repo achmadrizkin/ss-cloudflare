@@ -18,3 +18,7 @@
 # September 2025
 <img width="1477" height="1240" alt="image" src="https://github.com/user-attachments/assets/0d9c95b2-66ad-45a4-970e-d458bac8aa1b" />
 <img width="1458" height="1252" alt="image" src="https://github.com/user-attachments/assets/e137046c-273a-4ac3-a221-9f21a92603a9" />
+
+# October
+<img width="2559" height="1489" alt="image" src="https://github.com/user-attachments/assets/7f451a68-e6f9-4707-95ee-22e732d7f2e6" />
+<img width="1348" height="1260" alt="image" src="https://github.com/user-attachments/assets/e8cfd677-176e-4f18-a7e2-1db55a5f79f1" />
