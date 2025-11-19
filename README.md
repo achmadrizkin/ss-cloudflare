@@ -22,3 +22,6 @@
 # October
 <img width="2559" height="1489" alt="image" src="https://github.com/user-attachments/assets/7f451a68-e6f9-4707-95ee-22e732d7f2e6" />
 <img width="1348" height="1260" alt="image" src="https://github.com/user-attachments/assets/e8cfd677-176e-4f18-a7e2-1db55a5f79f1" />
+
+# November
+<img width="814" height="1182" alt="image" src="https://github.com/user-attachments/assets/d7a33a35-b450-48b7-ad22-a30fb0131181" />
