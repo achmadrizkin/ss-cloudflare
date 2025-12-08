@@ -25,3 +25,7 @@
 
 # November
 <img width="814" height="1182" alt="image" src="https://github.com/user-attachments/assets/d7a33a35-b450-48b7-ad22-a30fb0131181" />
+
+# Desember 2025
+<img width="1018" height="610" alt="image" src="https://github.com/user-attachments/assets/d037169d-8442-49a9-b3e2-54c9c0a858bb" />
+
