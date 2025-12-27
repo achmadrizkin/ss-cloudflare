@@ -29,3 +29,5 @@
 # Desember 2025
 <img width="1018" height="610" alt="image" src="https://github.com/user-attachments/assets/d037169d-8442-49a9-b3e2-54c9c0a858bb" />
 
+Hampir 1 tb bandwith anying
+<img width="1278" height="1279" alt="image" src="https://github.com/user-attachments/assets/94e1a2c2-7e82-4615-8a5c-f1e321971fcd" />
