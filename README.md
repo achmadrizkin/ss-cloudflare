@@ -31,3 +31,6 @@
 
 Hampir 1 tb bandwith anying
 <img width="1278" height="1279" alt="image" src="https://github.com/user-attachments/assets/94e1a2c2-7e82-4615-8a5c-f1e321971fcd" />
+
+# Januari 2026
+<img width="1188" height="1273" alt="image" src="https://github.com/user-attachments/assets/e759d4ca-632f-4d4a-881f-892bbe8b344c" />
