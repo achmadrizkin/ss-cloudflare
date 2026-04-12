@@ -37,3 +37,5 @@ Hampir 1 tb bandwith anying
 
 <img width="1338" height="594" alt="image" src="https://github.com/user-attachments/assets/e5c56dd6-6264-4087-888e-0f8bedf03309" />
 
+# 04
+<img width="1384" height="1024" alt="image" src="https://github.com/user-attachments/assets/4f6ffad1-a577-40ba-86b6-2b61062a5081" />
