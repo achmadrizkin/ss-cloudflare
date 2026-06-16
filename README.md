@@ -42,3 +42,6 @@ Hampir 1 tb bandwith anying
 
 # May 2026
 <img width="2548" height="1351" alt="image" src="https://github.com/user-attachments/assets/14ad0c7d-9a6c-46e3-b312-c5df321ecb0f" />
+
+# 16 06 2026
+<img width="2233" height="1366" alt="image" src="https://github.com/user-attachments/assets/8785befc-6238-400c-a748-fdc46e9e48f1" />
